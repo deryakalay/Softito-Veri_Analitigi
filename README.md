@@ -1,0 +1,1 @@
+# Softito-Veri_Analitigi
